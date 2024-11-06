@@ -73,4 +73,4 @@ This project is licensed under the [MIT License](LICENSE).
 
  ## Want more details?
  
- For more details or if you want to recommend me for other projects. Just contact me on my email: <strong> ranizouaouicontact@gmail.com </strong>
+ For more details or if you want to recommend me for other projects. Just contact me on my email: <strong> nessimbns2@gmail.com </strong>
